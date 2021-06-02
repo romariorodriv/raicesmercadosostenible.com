@@ -1,0 +1,2 @@
+# raicesmercadosostenible.com
+emulador
